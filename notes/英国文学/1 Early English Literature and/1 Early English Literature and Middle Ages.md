@@ -1,4 +1,4 @@
-# &#x20;1 Early English Literature and Middle Ages
+# &#x20;Early English Literature and Middle Ages
 
 ## &#x20;(449-1066-1400)&#x20;
 
